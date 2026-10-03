@@ -1,0 +1,2 @@
+# absenku.id
+absenku
